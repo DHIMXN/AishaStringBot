@@ -1,14 +1,14 @@
 ━━━━━━━━━━━━━━━━━━━━
 
 <h2 align="center">
-    ──「 Sᴛʀɪɴɢ Gᴇɴ Bᴏᴛ 」──
+    ──「 Aɪsʜᴀ Sᴛʀɪɴɢ Bᴏᴛ 」──
 </h2>
 
 <p align="center">
   <img src="https://te.legra.ph/file/07e5b7d11e3a834ad3826.jpg">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [sᴛʀɪɴɢ ғᴀᴛʜᴇʀ](https://t.me/StringFatherBot)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [sᴛʀɪɴɢ ғᴀᴛʜᴇʀ](https://t.me/AishaString_Bot)**_
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
